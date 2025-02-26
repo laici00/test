@@ -8,11 +8,7 @@
 > #### ✅ SPM Cert.     
 > #### ✅ School Leaving Cert.   
 
-## But why?
 
-> #### 1. For fun iguess.
-> #### 2. Wake up call for them to do something about this.
-> #### 3. Don't build your house with glasses.
 
 
 ## What do they say about your personal data:
